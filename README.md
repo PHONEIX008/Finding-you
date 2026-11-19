@@ -1,2 +1,3 @@
 # Finding-you
-this is for someone I know
+This Is For Someone I know
+some time I fell for you a little more
